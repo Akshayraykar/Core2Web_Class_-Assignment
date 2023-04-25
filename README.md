@@ -1,1 +1,0 @@
-# Core2Web_Class_-Assignment
